@@ -8,4 +8,4 @@ meu nome é NathaliaP12
 
 - ### Você entra em contato comigo 📫
 
-- ![https://media1.tenor.com/m/bRbdU4WeOzMAAAAC/2020-bye.gif]
+- ![...](https://media1.tenor.com/m/bRbdU4WeOzMAAAAC/2020-bye.gif)
